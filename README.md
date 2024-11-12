@@ -2,6 +2,8 @@
 
 **Welcome, Coin Master players!** If you’ve been looking for a way to get free spins and improve your chances of winning big in the world of Coin Master, you’ve come to the right place! In this article, we will guide you through everything you need to know about Coin Master, how to claim your **free 5000 spins** link, and how to maximize your game experience in November 2024. Whether you’re a seasoned player or new to the game, this comprehensive guide will give you the tools you need to level up faster, earn more rewards, and have more fun. Let's dive in!
 
+#### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 ### **What is Coin Master?**
 
 Coin Master is a mobile game developed by Moon Active, where players spin a virtual slot machine to earn coins, attack other players' villages, raid their resources, and build their own villages. The primary goal of the game is to progress through various stages by collecting cards, building new structures for your village, and leveling up. 
